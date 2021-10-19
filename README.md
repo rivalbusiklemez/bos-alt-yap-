@@ -1,2 +1,2 @@
-# RİVAL GUARD ALT YAPI !
+# RİVAL BOŞ ALT YAPI
 
